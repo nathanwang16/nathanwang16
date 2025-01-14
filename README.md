@@ -1,5 +1,5 @@
 ### Hi there 👋
-![IMG_5471](https://github.com/nathanwang16/nathanwang16/assets/112381594/d6c6a233-4b29-407c-bdd1-14314ad6a2eb)
+
 
 
 - 😺 I’m currently working on The Scheme Of My Life, i mean, the actual one!
